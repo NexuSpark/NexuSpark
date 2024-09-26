@@ -1,4 +1,4 @@
-# ¡Hola, mundo! 🌍 Soy @NexuSpark.
+# ¡Hola, mundo! 🌍 Soy NexuSpark.
 
 🚀 Siempre ando buscando aprender y explorar nuevas herramientas y conceptos.  
 
